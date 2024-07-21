@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Gursimran Singh 
+- 🌱 I’m currently learning 
